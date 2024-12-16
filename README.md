@@ -1,0 +1,1 @@
+# QR--scanner-generated-by-text-main-
